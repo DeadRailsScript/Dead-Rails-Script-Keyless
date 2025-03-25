@@ -10,7 +10,7 @@
 
 ![image](https://github.com/user-attachments/assets/faf683a5-0bde-462c-b601-8e26f446aded)
 
-![download](https://github.com/user-attachments/assets/8781a3ca-3f97-4e98-99d7-a5de5b8a8591)
+![hq720](https://github.com/user-attachments/assets/80ddb0bf-ad4c-4d16-8693-9d47f0b74a21)
 
 ---
 
